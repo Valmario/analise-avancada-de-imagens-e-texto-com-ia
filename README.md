@@ -1,0 +1,1 @@
+# analise-avancada-de-imagens-e-texto-com-ia
